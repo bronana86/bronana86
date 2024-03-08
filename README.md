@@ -1,5 +1,6 @@
+Isab/ellie
 (she/her)
 NYU Student.
-Aspiring Video/Board game designer.
+Aspiring video/board game designer.
 Biking, Rock Climbing, and Disc Golf enthusiast.
 Proud owner of Glover.

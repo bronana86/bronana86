@@ -1,6 +1,6 @@
-Isab/ellie
+Isabel
 (she/her)
-NYU Student.
-Aspiring video/board game designer.
+NYU Graduate.
+Indie game developer.
 Biking, Rock Climbing, and Disc Golf enthusiast.
 Proud owner of Glover.
